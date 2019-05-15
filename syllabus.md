@@ -30,4 +30,8 @@ We will explore these questions by reading a range of text from 1965 to the pres
   
 *Week Three*  
 [Discussion Post](http://learn.stfrancis.edu)
+
+*Week Four*  
+[Discussion Post](http://learn.stfrancis.edu)  
+
   
